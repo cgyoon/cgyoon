@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-- 🔭 I’m currently working on ... graphic design
+- 🔭 I’m currently working on ... building choong.city
 - 🌱 I’m currently learning ... speaking in english
 - 👯 I’m looking to collaborate on ... 
 - 🤔 I’m looking for help with ... making money
